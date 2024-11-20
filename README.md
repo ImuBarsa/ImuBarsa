@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ImuBarsa
+- 👀 I’m interested in football.
+- 🌱 I’m currently learning different subjects.
